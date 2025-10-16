@@ -12,5 +12,5 @@
 - Возраст: 23
 - Город: Омск
 
-![Милый котик](https://placekitten.com/400/300)
+![Милый котик](https://abrakadabra.fun/uploads/posts/2022-02/1645646681_1-abrakadabra-fun-p-milii-kotik-v-shapochke-5.jpg)
 
